@@ -17,6 +17,8 @@ Mande uma DM nas nossas redes sociais e vamos conversar sobre como crescer junto
 📱 Siga-nos nas redes sociais
 
 Youtube: [@klubs-comunidade](https://www.youtube.com/@klubs-comunidades)
+
 Instagram: [@klubs.co](https://www.instagram.com/klubs.co/)
+
 Linkedin: [Klubs](https://www.linkedin.com/company/klubs-comunidades/posts/?feedView=all)
 
