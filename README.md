@@ -1,1 +1,0 @@
-A Klubs é uma plataforma whitelabel para criadores, especialistas e empresas que desejam hospedar conteúdos digitais, gerenciar comunidades e monetizar audiências. Com hospedagem nativa, gamificação, métricas em tempo real e integrações via API, o Klubs oferece uma solução escalável para cursos, eventos e redes sociais personalizadas, sem taxas extras de transação.
